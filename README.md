@@ -7,6 +7,8 @@ GROUP MEMBERS:
  ABDUL GHANI SID-64559;
  ABDULLAH FAREED SID-64570;
  SHARIQA FAREED SID-64569;
+ 
+ We are currently studing bscs program at PAF-KIET .. 
 
 ![2022-11-19](https://user-images.githubusercontent.com/118013958/202863320-224e1485-092f-4a5d-b30f-1ae8df29bc74.png)
 
